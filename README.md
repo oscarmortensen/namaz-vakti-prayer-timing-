@@ -1,1 +1,1 @@
-# namaz-vakti-prayer-timing-
+<a href="https://islamguide.eu/tr/namaz-vakitleri/">Namaz vakti (prayer timing)</a>, holds profound significance in the lives of Muslims worldwide. It delineates the moments when believers connect with the divine through their prescribed prayers. These timings are not merely moments on a clock but represent spiritual rendezvous, guiding individuals towards spiritual discipline and mindfulness throughout the day.
